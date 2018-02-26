@@ -16,7 +16,7 @@ You may have the best house in the town, but if you don't advertise it with high
 photography gear and an eye for composition to take photos and talent to post process images.
 
 I am not saying that guy is me. Bu I do have the gear, have an eye for composition, creative and have done real-estate
-photography before. I am offering this service in y interest to get to know interesting people. Given my limited
+photography before. I am offering this service to expand my real-estate photography portfolio. Given my limited
 availability I would limit my services to 2 properties a week (on Sundays) limited to 8 a month.
 
 If I do agree to photograph your property, some of them would get published online in my photography portfolio. I
