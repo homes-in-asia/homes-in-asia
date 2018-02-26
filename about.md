@@ -22,11 +22,11 @@ We are now 3 months  in to the year 2018. The world is rapidly moving forward, b
 
 I am reimagining the asian real-estate industry.
 
-I will provide real-estate agents fully featured free real-estate websites. In addition I will provide them with professional looking business cards, letterheads, news paper advertisement templates to transcend their business.
+I will provide real-estate agents fully featured free real-estate websites. In addition I will provide them with professional looking business cards, letterheads, news paper advertisement artwork to transcend their business.
 
 Owners will have the ability to freely advertise their property.
 
-One day what I do at Homes in Asia will be the international standard in real-estate.
+What I do at Homes in Asia will one day be the international standard in real-estate.
 
 For those of you who know me, you will be aware by now that my ambition is unlimited. You know that I will settle for nothing short
 of greatness, or I will die trying.
