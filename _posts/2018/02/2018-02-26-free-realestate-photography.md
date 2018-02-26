@@ -32,4 +32,4 @@ If interested, send an email to ziyan@jdeen.com with the following details:
 - A couple photos taken early in the morning or evening (to determine how shadows fall)
 - If possible, location on a Googel Map (you might need to ask your child ;))
 
-You do require to understand either English or Sinhalese.
+You do require to understand either English or Sinhalese and be located in Colombo, Sri Lanka.

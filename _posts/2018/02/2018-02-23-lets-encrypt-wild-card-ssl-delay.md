@@ -1,11 +1,11 @@
 ---
 layout: post
 published: true
-title: Free Real Estate
+title: Lets Encrypt - Wild Card SSL - Delay
 mathjax: false
 featured: false
 comments: false
-headline: Making blogging easier for masses
+headline: Lets Encrypt - Wild Card SSL - Delay
 categories: 
   - workshop
 tags: press
